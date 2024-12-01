@@ -9,7 +9,7 @@ Pictures
 Members:
 Baldono, Persieval Angelo T. / 8215295@ntc.edu.ph
 Lilangan, Michael John V. / 8213649@ntc.edu.ph
-Limbo, Rixrasel E. / @ntc.edu.ph
+Limbo, Rixrasel E. / 422003664@ntc.edu.ph
 
 Notes:
 Kapag gagamitin yun code i download lang palagi ang tatlong zip file.
